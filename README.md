@@ -2,4 +2,3 @@
 - 💞️ Systems Analysis and Development student :)
 - 🌱 FATEC - RUBENS LARA
 - 📫 E-mail: thaiisdiias15@gmail.com/ Disc. ThaísDias#7888
-- 
