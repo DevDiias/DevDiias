@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DevDiias
-- 💞️ Systems Analysis and Development student :)
+- 💞️ ADS student :)
 - 🌱 FATEC - RUBENS LARA
 - 📫 E-mail: thaiisdiias15@gmail.com/ Disc. ThaísDias#7888
